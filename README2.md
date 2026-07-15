@@ -108,10 +108,10 @@ https://drive.google.com/file/d/11dCTX4SxPh0qRm-s40hptdVy0CCOpUzj/view?usp=drive
 
 ## 👤👤👤 Team
 
-**Bavya Sree Golla**
-**Preethi Venkatesh**
-**Meenugolla Chinna**
-**Hemavathi Panuganti**
+**Bavya Sree Golla**\n
+**Preethi Venkatesh**\n
+**Meenugolla Chinna**\n
+**Hemavathi Panuganti**\n
 **Kurapati Nithya Sri**
 
 ---
